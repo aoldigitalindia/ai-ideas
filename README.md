@@ -1,1 +1,1 @@
-# ai-ideas
+# ai-ideas are plenty
